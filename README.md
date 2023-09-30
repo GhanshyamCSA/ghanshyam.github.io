@@ -1,4 +1,4 @@
-# ghanshyam.github.io
+# SOC Analyst
 
 ###OBJECTIVE
 Aspiring and highly motivated  cyber security enthusiast with strong academic foundation and a passion for protecting digital assets.Seeking  a cyber security position to apply my knowledge, learn from industry experts, and contribute to strengthening digital security.
